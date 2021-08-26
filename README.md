@@ -9,3 +9,4 @@
 ![image](https://user-images.githubusercontent.com/46372074/120106915-945f5500-c167-11eb-96f7-a9db4442cf10.png)
 
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/S6S75YFYX)
